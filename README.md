@@ -1,2 +1,2 @@
 # VEDA-Tracker
-A tracker that aims to obtain as much data as possible
+A tracker that aims to cause a ripple in the market, 
